@@ -1,2 +1,1 @@
-[google.com](https://google.com)
-[discord.com/app](https://discord.com/app)
+gng go to the link there on the right
